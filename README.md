@@ -1,1 +1,1 @@
-# lwag2788.github.io
+Hello, my name is Londyn Wagner. My favorite animal is a wolf. I'm interested in learning how to efficiently navigate GitHub.
